@@ -12,6 +12,6 @@ I'm a passionate COO with experience in Sales & Operations and I love learning n
 
 ## Get in Touch 📬
 
-- **[LinkedIn]**(your_linkedin_profile_link)](https://www.linkedin.com/in/ryan-powell-aka-kinley-sithup-59528819/)
+- **[LinkedIn]**([your_linkedin_profile_link](https://www.linkedin.com/in/ryan-powell-aka-kinley-sithup-59528819/)]
 
 
